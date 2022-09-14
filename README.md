@@ -3,13 +3,13 @@
 
 
 
-## 👉 [สล็อตtop5google](member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
-## 👉 [slotxo สมัครสมาชิก](member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
-## 👉 [slotxo เข้าสู่ระบบ](member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
-## 👉 [slotxo ทางเข้า](member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
-## 👉 [slotxo เว็บตรง](member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
-## 👉 [ฝาก10รับ100](member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
-## 📞 [LINE ID: คลิก](member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
+## 👉 [สล็อตtop5google](https://member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
+## 👉 [slotxo สมัครสมาชิก](https://member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
+## 👉 [slotxo เข้าสู่ระบบ](https://member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
+## 👉 [slotxo ทางเข้า](https://member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
+## 👉 [slotxo เว็บตรง](https://member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
+## 👉 [ฝาก10รับ100](https://member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
+## 📞 [LINE ID: คลิก](https://member.88xbet.com/?ref=MDkyOTQ3OTk1NQ)
 
 
 SLOTXO
